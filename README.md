@@ -1,0 +1,1 @@
+All my read me info is in the read me folder. as photos
